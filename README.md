@@ -21,4 +21,4 @@ To derive insights from raw sales data and improve strategic decision-making by 
 
 ---
 
-🔗 [LinkedIn Post](https://lnkd.in/epvZHcmf)
+🔗 [LinkedIn]
