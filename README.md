@@ -22,3 +22,4 @@ To derive insights from raw sales data and improve strategic decision-making by 
 ---
 
 🔗 [LinkedIn]
+www.linkedin.com/in/ahmed-abdelaziz-51873236a
